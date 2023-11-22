@@ -1,1 +1,1 @@
-There's nothing special here. It's just a picture, for something. If you ever come across it aside from here, you'll understand.
+There's nothing special here. It's just some pictures, for something. If you ever come across them aside from here, you'll understand.
